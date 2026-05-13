@@ -1,4 +1,4 @@
-# 
+# updated dexscreener sniper bot | front-running + contract-verification offers the most advanced dexscreener sniper bot, with front-running and contract-verification. Ideal for
 
 
 
